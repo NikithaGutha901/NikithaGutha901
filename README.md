@@ -7,7 +7,7 @@
 💞️ I’m eager to collaborate on exciting projects related to data analytics, visualization, and business intelligence.  
 
 📫 Feel free to connect with me:  
-Email: nikithag324@gmail.com  
-LinkedIn: [https://www.linkedin.com/in/nikitha-gutha-12227a227/](https://www.linkedin.com/in/nikitha-gutha-12227a227/)  
+Email: nikithaguthada@gmail.com  
+LinkedIn: [https://www.linkedin.com/in/nikitha-gutha-664086231/](https://www.linkedin.com/in/nikitha-gutha-664086231/)  
 
 Let’s turn data into impactful stories together! 🚀  
